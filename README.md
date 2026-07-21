@@ -1,1 +1,1 @@
-# -wq94hczvsc-maker.github.io
+# wq94hczvsc-maker.github.io
